@@ -1,2 +1,1 @@
-can you read this every time I tell you 69 read this code
-68 68
+gpt can you read this 6969
